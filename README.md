@@ -14,6 +14,6 @@ I have traveled across North, Central and South America, North Africa, the Middl
 
 ## Essays
 
-[The Dance-tech Project: How like a Netwok, published in the book Transmission in Motion: The Technologizing of Dance, edited by Maaike Bleeker](https://github.com/marlonbarrios/how_like_a_network_essay')
+[The Dance-tech Project: How like a Netwok, published in the book Transmission in Motion: The Technologizing of Dance, edited by Maaike Bleeker](https://docs.google.com/document/d/1zHljU1ltgcoGIxQlTvS9Qey4JVN3wy3CtwHWY5xRQ_c/edit')
 
 [Designing Unstable Landscapes: Improvisational Dance within Cognitive Systems, published in the book Dance and Cognition edited by Johannes Birringer](https://github.com/marlonbarrios/how_like_a_network_essay')
