@@ -12,8 +12,22 @@ My "Unstablelandscape" framework is a post-humanist epistemic integrative approa
 
 I have traveled across North, Central and South America, North Africa, the Middle East, Europe, and the UK, leading workshops and labs and empowering participants to explore their creativity through my expertise and guidance.
 
-## Essays
+## Writing, press and online articles
 
-[The Dance-tech Project: How like a Netwok, published in the book Transmission in Motion: The Technologizing of Dance, edited by Maaike Bleeker](https://docs.google.com/document/d/1zHljU1ltgcoGIxQlTvS9Qey4JVN3wy3CtwHWY5xRQ_c/edit')
+[The Dance-tech Project: How like a Netwok, published in the book Transmission in Motion: The Technologizing of Dance, edited by Maaike Bleeker](https://docs.google.com/document/d/1zHljU1ltgcoGIxQlTvS9Qey4JVN3wy3CtwHWY5xRQ_c/edit?usp=sharing)
 
-[Designing Unstable Landscapes: Improvisational Dance within Cognitive Systems, published in the book Dance and Cognition edited by Johannes Birringer](https://github.com/marlonbarrios/how_like_a_network_essay')
+[Designing Unstable Landscapes: Improvisational Dance within Cognitive Systems, published in the book Dance and Cognition edited by Johannes Birringer](https://docs.google.com/document/d/1mULpzSgd4xp8Et-9XGsu_IX0mST1uW7dLwSZULh6K4Y/edit?usp=sharing)
+
+[Dance, Somatics, andNeuroscience | An interview with Glenna Batson abouther book Body and Mind in Motionby Marlon Barrios Solano](https://drive.google.com/file/d/1_66-HlNU7bEpc9vg7hCH397PUtkCPbKp/view?usp=sharing)
+
+[Entangled with Fabulation Engines by Marlon Barrios Solano](https://radiona.org/diary/entangled-with-fabulation-engines)
+
+[Derivative Utopias: Playing with our Collective Artifice by Marlon Barrios Solano](https://radiona.org/diary/autosave-7f747c46407d59744b876bf04876ae1e)
+
+[Podcast: #46 Remembering to Remember: Marlon Barrios Solano August 03, 2023}(https://we.scienceandnonduality.com/podcasts/sounds-of-sand/episodes/2148045015)
+
+[Meet Sati-AI, a Non-Human Mindfulness Meditation Teacher BY ROSS NERVIG AND MARLON BARRIOS SOLANO| JUNE 15, 2023](https://www.lionsroar.com/ai-meditation-teacher/)
+
+[Writing and projects in MEDIUM](https://medium.com/@marlon_21867)
+
+
