@@ -24,7 +24,7 @@ I have traveled across North, Central and South America, North Africa, the Middl
 
 [Derivative Utopias: Playing with our Collective Artifice by Marlon Barrios Solano](https://radiona.org/diary/autosave-7f747c46407d59744b876bf04876ae1e)
 
-[Podcast: #46 Remembering to Remember: Marlon Barrios Solano August 03, 2023}(https://we.scienceandnonduality.com/podcasts/sounds-of-sand/episodes/2148045015)
+[Podcast: #46 Remembering to Remember: Marlon Barrios Solano August 03, 2023](https://we.scienceandnonduality.com/podcasts/sounds-of-sand/episodes/2148045015)
 
 [Meet Sati-AI, a Non-Human Mindfulness Meditation Teacher BY ROSS NERVIG AND MARLON BARRIOS SOLANO| JUNE 15, 2023](https://www.lionsroar.com/ai-meditation-teacher/)
 
