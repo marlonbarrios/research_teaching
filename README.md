@@ -18,7 +18,7 @@ I have traveled across North, Central and South America, North Africa, the Middl
 
 [Designing Unstable Landscapes: Improvisational Dance within Cognitive Systems, published in the book Dance and Cognition edited by Johannes Birringer](https://docs.google.com/document/d/1mULpzSgd4xp8Et-9XGsu_IX0mST1uW7dLwSZULh6K4Y/edit?usp=sharing)
 
-[Dance, Somatics, andNeuroscience | An interview with Glenna Batson abouther book Body and Mind in Motionby Marlon Barrios Solano](https://drive.google.com/file/d/1_66-HlNU7bEpc9vg7hCH397PUtkCPbKp/view?usp=sharing)
+[Dance, Somatics, andNeuroscience | An interview with Glenna Batson](https://drive.google.com/file/d/1_66-HlNU7bEpc9vg7hCH397PUtkCPbKp/view?usp=sharing)
 
 [Entangled with Fabulation Engines by Marlon Barrios Solano](https://radiona.org/diary/entangled-with-fabulation-engines)
 
@@ -26,7 +26,7 @@ I have traveled across North, Central and South America, North Africa, the Middl
 
 [Podcast: #46 Remembering to Remember: Marlon Barrios Solano August 03, 2023](https://we.scienceandnonduality.com/podcasts/sounds-of-sand/episodes/2148045015)
 
-[Meet Sati-AI, a Non-Human Mindfulness Meditation Teacher BY ROSS NERVIG AND MARLON BARRIOS SOLANO| JUNE 15, 2023](https://www.lionsroar.com/ai-meditation-teacher/)
+[Meet Sati-AI, a Non-Human Mindfulness Meditation Teacher](https://www.lionsroar.com/ai-meditation-teacher/)
 
 [Writing and projects in MEDIUM](https://medium.com/@marlon_21867)
 
